@@ -1,1 +1,0 @@
-# aventura-do-tuca
